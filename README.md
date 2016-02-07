@@ -16,7 +16,7 @@ It’s like CouchSurfing, except CouchSurfing sucks. So does AirBnB, hostels and
 ## Crash on my couch
 
 * You can sleep in the private room available in our home in Oakland, California. 
-* Check out our trustroots for learning about me and my wife; https://www.trustroots.org/azer
+* Check out our trustroots for learning about me and my wife; https://www.trustroots.org/profile/azer
 
 ## Have me crash on your couch
 Your next travels where you need a couch go in here, like:
